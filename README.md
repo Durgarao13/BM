@@ -100,4 +100,8 @@ Durga Rao Geddam
 https://github.com/Durgarao13/Business-Management
 
 
-![exceptionPage](https://github.com/SuhasKamate/Business_Management_Project/assets/126138738/4349a429-61ff-4ecd-a463-2900874e1ea5)
+
+<img width="1470" height="828" alt="image" src="https://github.com/user-attachments/assets/1dd0f75a-8431-42fd-8010-79520535c536" />
+
+
+
